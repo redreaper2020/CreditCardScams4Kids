@@ -1,2 +1,0 @@
-# CreditCardScams4Kids
-reeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
